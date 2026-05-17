@@ -1,4 +1,4 @@
-# 
+# rare bot de ataque sanduiche plugins é o melhor bot de ataque sanduiche plugins com varredura de degen coins e take-profit. Seguro, confiável e otimizado para estratégias MEV,
 
 
 
